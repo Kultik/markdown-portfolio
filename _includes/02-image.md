@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+[magma pic] (https://thumbs.dreamstime.com/b/magma-background-red-crack-astage-background-90380155.jpg)
